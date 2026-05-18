@@ -1,4 +1,4 @@
-# 
+# professional bot de negociação Bybit plugins é o melhor bot de negociação Bybit plugins com gerenciamento de alavancagem e margem isolada. Seguro, confiável e otimizado para
 
 
 
